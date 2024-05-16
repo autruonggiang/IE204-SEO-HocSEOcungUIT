@@ -1,4 +1,4 @@
-# IE204 - SEO LAB
+# IE204 - Search Engine Optimization (SEO)'s Lab
 Where have all SEO Lab's reports of my group.
 
 Folder (Lab + Seminar + PJ, only view for UIT students):
