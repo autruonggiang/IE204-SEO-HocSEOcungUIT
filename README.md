@@ -6,7 +6,7 @@
 > ~~https://www.hocseocunguit.com~~ *(expired)*
 
 ## 📽️ Presentation  
-🔗 [Canva – Project Presentation](https://www.canva.com/design/DAGEdJcBTbU/KcXQcHeg4QG4eIXkzDB5iw/edit)
+> [Canva – Project Presentation](https://www.canva.com/design/DAGEdJcBTbU/KcXQcHeg4QG4eIXkzDB5iw/edit)
 
 ---
 
