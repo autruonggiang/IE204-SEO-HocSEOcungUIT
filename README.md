@@ -1,4 +1,4 @@
-# IE204 – Search Engine Optimization (SEO)  
+# IE204 Project – Search Engine Optimization (SEO)  
 
 **Term 2 (2023 – 2024)**
 
